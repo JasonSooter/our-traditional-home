@@ -3,6 +3,7 @@ title: Business and Work
 date created: 2025-08-16T09:51:39-06:00
 date modified: 2025-12-29T20:33:51-07:00
 ---
+
 # Business and Work
 
 This category contains posts about The Organic Bloom business, Jason's remodeling work, career transitions, and entrepreneurial endeavors.
@@ -142,11 +143,11 @@ learning it's ins and outs
 
 submersing himself in SolidWorks and MasterCam
 
-![[photo_2_(1]].jpg)
+![[photo_2_(1).jpg]]
 
 the "first cut"- several weeks ago now
 
-![[photo_(6]].jpg)
+![[photo_(6).jpg]]
 
 ![[photo_3.jpg]]
 
@@ -158,9 +159,9 @@ working on a pizza pie table like this:
 
 I stopped by the shop mid day todayJason was learning how to bend wood for part of the table
 
-![[photo_(7]].jpg)
+![[photo_(7).jpg]]
 
-![[photo_(8]].jpg)
+![[photo_(8).jpg]]
 
 I love my husbandhe does so many cool things!
 
