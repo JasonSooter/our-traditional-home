@@ -105,9 +105,9 @@ AND in addition to spending so much time with friends, I've gotten to spend a tr
 
 I am officially "unemployed" again! Woo hoo!!
 
-I think Jason is even more excited than mehe's just pretty darn spoiled and would like it to stay that way! (Notice: Jason want's me to clarify that unemployment for me is a good thing, I'm *not *looking for a job! haha!)
+I think Jason is even more excited than me as he's just pretty darn spoiled and would like it to stay that way! (Notice: Jason want's me to clarify that unemployment for me is a good thing, I'm *not *looking for a job! haha!)
 
-Let me tell you, thoughI have a HUGE "When I'm not working anymore" to-do-list!
+Let me tell you, though, I have a HUGE "When I'm not working anymore" to-do-list!
 
 This week I'll be playing catch up on servicing some of our vending machinesNeed to get going on a better website for Jason's remodeling businessNeed to finish the Facebook "fan" page I started for our company. I've still got lots of work to do in collecting photos of Jason's work. We have not been super on the ball about before and after photos for the past 4 years…need to work on that too!
 
@@ -157,7 +157,7 @@ the "first cut"- several weeks ago now
 
 working on a pizza pie table like this:
 
-I stopped by the shop mid day todayJason was learning how to bend wood for part of the table
+I stopped by the shop mid day today. Jason was learning how to bend wood for part of the table
 
 ![[photo_(7).jpg]]
 
